@@ -1,2 +1,3 @@
 # Portable-version-of-the-software
-便携版软件
+安装版和便携版软件
+每天发布【也不是】
