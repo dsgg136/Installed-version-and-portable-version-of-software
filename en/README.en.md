@@ -1,5 +1,5 @@
 # Portable-version-of-the-software
-简体中文【Zh-cn】：https://github.com/dsgg136/Installed-version-and-portable-version-of-software/blob/main/README.md
+简体中文【Zh-cn】：https://github.com/dsgg136/Installed-version-and-portable-version-of-software/blob/main/README.md【Angust 3，2025】
 
 Installation version and portable version software.
 It is not published every day.
