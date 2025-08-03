@@ -1,4 +1,5 @@
 # Portable-version-of-the-software
+简体中文【Zh-cn】：
 Installation version and portable version software.
 It is not published every day.
 
