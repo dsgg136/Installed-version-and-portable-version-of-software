@@ -10,5 +10,7 @@
 ![Image](https://github.com/dsgg136/Installed-version-and-portable-version-of-software/blob/main/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE_3-8-2025_154253_www.123pan.com.jpeg)
 ![Image](https://github.com/dsgg136/Installed-version-and-portable-version-of-software/blob/main/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE_3-8-2025_162650_www.123pan.com.jpeg)
 
-历史时间3：https://www.123912.com/s/B5JFTd-p13lv https://www.123865.com/s/B5JFTd-p13lv
+
+
+历史时间3：https://www.123912.com/s/B5JFTd-p13lv https://www.123865.com/s/B5JFTd-p13lv【2025.8.3】
 <img width="108" height="108" alt="image" src="https://github.com/user-attachments/assets/26acacc6-43ea-4968-a9e6-f9736ae19321" />
