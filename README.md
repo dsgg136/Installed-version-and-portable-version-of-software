@@ -1,6 +1,7 @@
 # Portable-version-of-the-software
 英语【En】:https://github.com/dsgg136/Installed-version-and-portable-version-of-software/blob/main/en/README.en.md
-
+中文[Cn]：https://github.com/dsgg136/Installed-version-and-portable-version-of-software/blob/main/README.md
+ 
 安装版和便携版软件
 每天发布【也不是】
 
