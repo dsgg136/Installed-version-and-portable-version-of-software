@@ -35,3 +35,6 @@
 历史时间6:链接：https://pan.xunlei.com/s/VOWs3MCyioX4GOf8frDHcoyzA1?pwd=j8hz# 复制这段内容后打开「手机迅雷 App」即可获取。无需下载在线查看，视频原画享倍速播放：
 链接：https://pan.xunlei.com/s/VOWs3MCyioX4GOf8frDHcoyzA1?pwd=j8hz# 复制这段内容后打开「手机迅雷 App」即可获取。无需下载在线查看，视频原画享倍速播放
 <img width="120" height="120" alt="image" src="https://github.com/user-attachments/assets/7d13743b-1003-4c1b-aea3-a306d345f604" />
+
+历史时间7：https://share.feijipan.com/s/XqOG1u8y
+![Image](https://github.com/dsgg136/Installed-version-and-portable-version-of-software/blob/main/download.png)
